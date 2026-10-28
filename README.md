@@ -42,5 +42,5 @@ Interested in software development, applied AI and data internships in Bengaluru
 
 ## Contact
 
-- Email: jojohnofficial@gmail.com
+- Email: joeljohn1009@gmail.com
 - LinkedIn: https://www.linkedin.com/in/joel-j-samuel-33026630a/
